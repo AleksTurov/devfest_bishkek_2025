@@ -1,0 +1,1 @@
+# devfest_bishkek_2025
